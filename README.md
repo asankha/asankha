@@ -1,5 +1,6 @@
 # Asankha Perera
 
-Aayu Technologies LLC
-SLAppForge, Inc
-AdroitLogic Lanka (Private) Limited
+Founder
+- Aayu Technologies LLC
+- SLAppForge, Inc
+- AroitLogic Lanka (Private) Limited
